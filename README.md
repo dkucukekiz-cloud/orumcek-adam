@@ -1,2 +1,0 @@
-# orumcek-adam
-sa beyler
